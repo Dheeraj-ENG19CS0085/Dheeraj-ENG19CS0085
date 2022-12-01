@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Dheeraj Kumar
 - 👀 I’m interested in programming,development and implimented in new ideas
-- 🌱 I’m currently learning computer science learning in 5th sem
+- 🌱 I’m currently learning computer science learning in 7th sem
 - 📫 How to reach me?
 my email- eng19cs0085.dheeraj@gmail.com 
 my 📞- 8545862260
